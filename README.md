@@ -5,5 +5,4 @@
 - I’m looking to collaborate on any sort of project to help expand my knowledge, specifically mobile app development. 
 - How to reach me: 724-636-0871 and/or justinms11@outlook.com
 - Pronouns: He/Him
-- Fun fact: Huge Boston sports fan 
 - Looking for Internships/Job Opportunities
